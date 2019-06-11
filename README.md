@@ -1,11 +1,10 @@
-# HC_SG76_Trust
+# HC_SG76_Aetheral
 
 FREE (HARD) Travis Scott x ASAP Rocky Type Beat - Trip  Ft. Killy  Free Type Beat 2019
 
 ## Lyrics
 
 ```
-
 death of trust
 lost it in a ditch
 buried deep
