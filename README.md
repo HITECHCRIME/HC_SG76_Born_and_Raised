@@ -97,6 +97,8 @@ that (i lost) forever (- no)
 
 
 -
+basically a bitch
+
 dope
 pulled the tab
 gave it far 
