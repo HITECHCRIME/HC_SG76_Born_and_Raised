@@ -84,10 +84,10 @@ in your mind ya
 
 bless the mars
 raging farce will find ya
-[definition] from the spots is aight
+[definition] comes with shots at night
 like a telescope
 in your nose
-fucking hoes
+[running close]
 stardust in your nose (?)
 is blight
 get the smoke
