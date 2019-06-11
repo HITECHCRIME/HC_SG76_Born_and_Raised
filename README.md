@@ -85,14 +85,14 @@ in your mind ya
 bless the mars
 raging farce will find ya
 [definition comes with shots at night]
-like a telescope
+like a telescope (crowbar)
 in your [eyes]
 [running close]
 stardust in your [eyes] (?)
 is [pride]
 get the smoke
 it's its ghosts and whatnot
-that forever - no
+that (i lost) forever (- no)
 [will to fight]
 [but i tried aye]
 
