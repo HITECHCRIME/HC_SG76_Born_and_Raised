@@ -30,12 +30,11 @@ in your mind ya
 
 bless the mars
 raging farce will find ya
-
 divination from the spots is aight
 like a telescope
 in your nose
 fucking hoes
-stardust in your nose
+stardust in your nose (?)
 is blight
 get the smoke
 its its ghosts and whatnot
@@ -57,5 +56,8 @@ gave it far
 too much faith
 
 better spread
+
+scope
+
 
 ```
