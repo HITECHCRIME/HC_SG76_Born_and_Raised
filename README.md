@@ -84,7 +84,7 @@ in your mind ya
 
 bless the mars
 raging farce will find ya
-divination from the spots is aight
+[definition] from the spots is aight
 like a telescope
 in your nose
 fucking hoes
