@@ -88,7 +88,7 @@ like a telescope (crowbar)
 in your [eyes]
 [running close]
 stardust in your [eyes] (?)
-is [pride]
+is [pride] [light]
 get the smoke
 it's its ghosts and whatnot
 that (i lost) forever (- no)
