@@ -58,6 +58,8 @@ too much faith
 better spread
 
 scope
-
+whatever life throws (at me)
+dosed
+even if it's gold
 
 ```
