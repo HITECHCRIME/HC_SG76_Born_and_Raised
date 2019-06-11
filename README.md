@@ -1,4 +1,4 @@
-# HC_SG76_Aetheral
+# HC_SG76_Ethereal Trust
 
 FREE (HARD) Travis Scott x ASAP Rocky Type Beat - Trip  Ft. Killy  Free Type Beat 2019
 
