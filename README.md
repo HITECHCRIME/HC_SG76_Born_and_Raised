@@ -42,8 +42,9 @@ that forever
 will be gone
 when i'm done aye
 
--
 
+-
+dope
 pulled the tab
 gave it far 
 too much faith
