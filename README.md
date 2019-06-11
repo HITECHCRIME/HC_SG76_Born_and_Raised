@@ -1,4 +1,4 @@
-# HC_SG76_Born_and_Raised
+# HC_SG76_Trust
 
 FREE (HARD) Travis Scott x ASAP Rocky Type Beat - Trip  Ft. Killy  Free Type Beat 2019
 
@@ -42,11 +42,15 @@ that forever
 will be gone
 when i'm done aye
 
+x
+
 get the smoke
 its its ghosts and whatnot
 that forever
 will be gone
 when i'm done aye
+
+x
 
 it's its ghosts and whatnot
 that forever
