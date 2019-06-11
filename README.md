@@ -27,9 +27,9 @@ fight or flight
 tell me why
 you ain't right
 in your mind ya
-
 bless the mars
 raging farce will find ya
+
 divination from the spots is aight
 like a telescope
 in your nose
@@ -44,6 +44,11 @@ when i'm done aye
 
 get the smoke
 its its ghosts and whatnot
+that forever
+will be gone
+when i'm done aye
+
+it's its ghosts and whatnot
 that forever
 will be gone
 when i'm done aye
