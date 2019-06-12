@@ -27,7 +27,7 @@ tell me why
 you ain't right
 in your mind ya
 bless the mars (moss)
-raging farce will find ya (high-skilled agents with find ya)
+raging farce will find ya (high-skill agents with find ya) / reaching for some time ya)
 
 divination from the spots is aight
 like a telescope
