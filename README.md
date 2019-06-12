@@ -13,7 +13,7 @@ planned to be
 mighty g aye
 constructs rise
 in my mind 
-born and dead
+booooorn (and) dead
 fucking lies
 burn my head
 liquid lead
