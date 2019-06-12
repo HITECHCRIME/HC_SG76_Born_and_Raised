@@ -59,22 +59,23 @@ when i'm done aye
 
 SECOND VERSE
 
-death of trust
-lost it in a ditch
-buried deep
-in the skies
-planned to be 
+death of trust (again)
+lost it in a ditch (where it was)
+buried deep (yet high)
+in the skies (where i)
+planned to be (kind)
 mighty g aye
-constructs rise
-in my mind 
-born and dead
-fucking lies
-burn my head
-liquid lead
-poured into
-intrinsic
-basic instincts
-with this shit ye
+
+constructs rise ()
+in my mind ()
+born and dead ()
+fucking lies ()
+burn my head ()
+liquid lead ()
+poured into ()
+intrinsic ()
+basic instincts ()
+with this shit ye 
 
 fight or flight
 tell me why
