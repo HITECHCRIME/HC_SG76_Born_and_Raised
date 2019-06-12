@@ -22,7 +22,6 @@ intrinsic
 basic instincts
 with this shit ye
 
-
 fight or flight
 tell me why
 you ain't right
@@ -57,6 +56,12 @@ that forever
 will be gone
 when i'm done aye
 
+death of 
+death of 
+death of 
+death of
+death of
+death of trust
 
 SECOND VERSE
 
