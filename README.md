@@ -68,14 +68,14 @@ mighty g aye
 
 constructs rise ()
 in my mind ()
-born and dead ()
+born and dead (mourning dead)
 fucking lies ()
-burn my head ()
+burn my head (through thy x)
 liquid lead ()
 poured into ()
-intrinsic ()
-basic instincts ()
-with this shit ye 
+intrinsic (faster)
+basic instincts (basic aspects)
+with this shit ye (of this shit ye)
 
 fight or flight
 tell me why
