@@ -69,7 +69,7 @@ death of trust (again)
 lost it in a ditch (where it was)
 buried deep (yet high)
 in the skies (where i)
-planned to be (kind)
+planned to be (so kind)
 mighty g aye
 
 constructs rise ()
